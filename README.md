@@ -1,6 +1,6 @@
 - Hi, I’m Redzwan
 - I’m interested in coding
-- I’m currently learning Diploma in Computer Science 
+- I’m currently study Diploma in Computer Science 
 - I’m looking to collaborate on my assignment
 - How to reach me: redzwantaufek2@gmail.com
 
